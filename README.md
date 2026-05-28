@@ -13,7 +13,7 @@ At the moment, I
 
 My [deeply personal website](https://ivy.boo) is chock-full of weird things I've done. It's a deep web.
 
-Oh, and I love making new friends on [Mastodon](https://mastodon.social/@spiralganglion) and [Bluesky](https://bsky.app/profile/spiralganglion.com). Come say hello.
+Oh, and I cherish making new friends on [Mastodon](https://mastodon.social/@spiralganglion) and [Bluesky](https://bsky.app/profile/spiralganglion.com). Come say hello.
 
 With love,
 
